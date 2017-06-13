@@ -6,6 +6,8 @@ Mahasiswa Ilmu Komputer
 reinaldoalvin1@gmail.com*
 
 ##  Pendidikan
+
+### Institut Pertanian Bogor ---*SKom*
 Agustus 2016 -- Present
 
 ### SMA Mardi Yuana Depok
